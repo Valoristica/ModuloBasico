@@ -6,15 +6,16 @@ Bem-vindos à pagina do
 
 O objetivo desde curso é promover a capacitação de avaliadores na análise de 
 mercado e confecção de laudos de avaliações imobiliárias de acordo com o 
-estabelecido nas normas técnicas nacionais (NBR 14.653-01 a NBR 14.653-03).
+estabelecido nas normas técnicas nacionais (NBR 14.653).
 
-### Datas
+### Local
 
-- Próximo (Previsto): 5 e 6 de março de 2026, na cidade de Cascavel/PR
+- Cascavel/PR: exclusivo para servidores e funcionários do INSTITUTO DE 
+PLANEJAMENTO DE CASCAVEL (IPC).
 
 ### Investimento
 
-- Exclusivo para funcionários ou servidores do órgão: R$ 3.857,14
+- Investimento por participante: R$ 3.857,14
 
 ### Inscrições
 
